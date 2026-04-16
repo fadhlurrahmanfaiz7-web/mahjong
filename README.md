@@ -1,0 +1,2 @@
+# mahjong
+mahjong baik hati
